@@ -6,7 +6,7 @@
 * 2 tbsp (30 ml) soy sauce
 * 1 tbsp (15 ml) sesame seed oil
 * 2 tbsp (30 ml) sesame seed (If available, use Gomasio instead, and omit the salt. (see tips below))
-* Kosher salt
+**Kosher salt**
 
 **Procedure**
 
